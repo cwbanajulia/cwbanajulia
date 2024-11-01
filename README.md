@@ -3,7 +3,7 @@
 
 **cwbanajulia/cwbanajulia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Aqui estão algumas ideias para você começar:
+
 
 -  Atualmente estou trabalhando em eventos🤪
 -  Atualmente estou aprendendo (?)👓
