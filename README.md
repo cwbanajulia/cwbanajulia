@@ -13,4 +13,5 @@
 -  Como entrar em contato comigo insta cwb__anajulia
 -  Pronomes: ela\dela 
 -  Curiosidade: gosto de jogar bola,ganhar dinheiro e vapo
-
+-  
+![](https://media1.tenor.com/m/NjZL-9K4CJgAAAAC/kevin-bueno-kevin.gif)
