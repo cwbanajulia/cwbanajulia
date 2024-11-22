@@ -10,7 +10,7 @@
 -  Procuro colaborar em qualquer coisa que eu queira😘
 -  Estou procurando ajuda com medicos
 -  Pergunte-me sobre futebol
--  Como entrar em contato comigo insta cwb__anajulia
+-  Como entrar em contato comigo insta cwb__anajulia ou ana.rodrigues.silva27@escola.pr.gov.br
 -  Pronomes: ela\dela 
 -  Curiosidade: gosto de jogar bola,ganhar dinheiro e vapo
 -  
