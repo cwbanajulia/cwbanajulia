@@ -15,3 +15,4 @@
 -  Curiosidade: gosto de jogar bola,ganhar dinheiro e vapo
 -  
 ![](https://media1.tenor.com/m/NjZL-9K4CJgAAAAC/kevin-bueno-kevin.gif)
+[entra ai](https://youtu.be/XCQ1bqQPciA?si=v-lXqYMJyq0fSB7a)
